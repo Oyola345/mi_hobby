@@ -1,9 +1,9 @@
 # Titulo: Bailar KPOP
-**Diversión**: Me gusta bailar porque podés elegir entre las coreografías más sencillas o más complejas y es divertido cuando por fin te sale una secuencia de pasos que no entendías como los hacen los grupos.
+**Diversión**: Me gusta bailar Kpop (Pop coreano) porque puedo elegir entre coreografías sencillas o complejas y es divertido cuando por fin te sale una secuencia de pasos que no entendías como los hacen los grupos. Además al ser una música y cultura distinta a la nuestra, así también es su baile, así que es algo nuevo y entretenido.
 
 **Familia**: En mi familia soy la única que baila Kpop, a veces les enseño algunos pasos, pero soy la única que lo tiene como hobby.
 
-**Amigos**: Tampoco tengo amigos que bailen Kpop, pero al igual que mi familia, a veces les enseño algún paso.
+**Amigos**: Tampoco tengo amigos que bailen Kpop, pero al igual que a mi familia, a veces les enseño algún paso.
 
 **Medios**: Aprendo viendo e imitando los videos de las coreografías en YouTube.
 
